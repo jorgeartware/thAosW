@@ -1,0 +1,26 @@
+#  Night vision boy
+
+Mi bloqueo de escritor se desvaneció hace meses cuando toqué base con una de las cosas que importan más para mí, la gratitud.
+
+Hace unos días, publiqué el primer escrito para Withonor, que es mi nuevo proyecto de startup y ese escrito apunta a establecer el tono espiritual de esa compañía. Estoy orgulloso de como salió ese y me da gusto cómo mis amigos y contactos han reaccionado a esos esfuerzos. Pero tengo algunos otros proyectos y la vida misma es un tipo de proyecto en si, supongo que aquí es donde mi experiencia como administrador de proyectos, programas y operaciones debe venir a dar frutos.
+
+Ayer, decidí finalmente arrancar este blog que ha estado sentado aquí con tan solo un título que se me ocurrió hace bastantes años cuando me estaba reservando la mayoría de mis pensamientos para mí mismo, creciendo mi experiencia en negocios y la vida, apuntando a tener algo sustancial que ofrecer, algo diferente a mi blog más íntimo que es leído solamente por personas a las que les caigo realmente bien y quieren estar cercanas a mi corazón, algunos han de amarme mucho como para lidiar con mi sentimentalismo, y algunos puede que me encuentren lo suficiente interesante para aguantar mi ego.
+
+Este no es ese tipo de blog, finalmente me siento listo para ofrecer perspicacias con el manejo de la vida de negocios, consejos puntuales para personas que han decidido embarcarse a la vida de emprendimiento, te darás cuenta de lo mucho que vale todos y cada uno de tus esfuerzos pero eso no es nuevo, todo emprendedor dice lo mismo y tienen razón: encuentras a tus verdaderos amigos, encuentras tu verdadera fortaleza propia y tus retos, encuentras tu enfoque.
+
+Al día de hoy he sobrevivido durante una década de toma de riesgo extremo y puedo atestiguar de primera mano que además es siempre divertido! Incluso cuando las cosas no están saliendo a tu manera, aprendes y sobrevives [¿o es al revés? a quien le importa, es de ambas maneras] y miras atrás y ríes a carcajadas, muy parecido a la otra noche en la que agarré mi tablarga y patiné de bajada por el camellón de la avenida entrando en incrementadas fuerzas G y velocidad, y no azoté al suelo como hace unos meses, nel, no esta vez. No te engañes al pensar que ahora soy un amo de dogtown, sí golpeé cosas y tuve que aterrizar corriendo de puntillas luciendo ridículo más de unas veces, pero, considerando el escaso alumbrado público del vecindario y el hecho de que el camino serpenteado intencionado para bicicletas está rodeado e invadido por maleza… ! … yo diría que lo hice bastante bien, y lo pasé de lo más divertido, hubo algunos segmentos en los que me la arreglé para permanecer sobre la tabla no por segundos sino minutos mientras maniobraba obstáculos, dependiendo de mis modestas destrezas e incrementalmente detallada visión nocturna, de lo cual estoy todos los días cada vez más asombrado y ahora pienso que tal vez soy tetracromático, no sé, desarrollar la habilidad para ver colores en la oscuridad podría ser una destreza recientemente adquirida pero se siente como si siempre hubiera podido hacerlo, tan solo necesitaba práctica.
+
+Y tú mi amigo, tú necesitas práctica también. Tengo más práctica en negocios que patinando así que sube a bordo, salta al camino conmigo y te cuidaré. Estaré iniciando otro par de blogs, subiendo sitios web, desarrollando apps y escribiendo libros también, pero más que todo, estaré trabajando de cerca con las personas en quienes confío.
+Y de eso estoy agradecido.
+Con eso en mente pude poner orden a mi vida y organizar mis ideas en proyectos, los proyectos en un plan basado en milestones/hitos y una estrategia orientada a contingencias.
+
+Withonor es diferente para mí porque esta es la primera vez que estoy en el asiento conductor de una avanzada ambiciosa.
+Y con eso al corazón, les aseguro que todas y cada una de las personas que me han ayudado y puesto su confianza en mí serán recompensadas: aquellos que han invertido dinero en proyectos pasados de los que fui parte, aquellos que han apalancado su reputación para elevarnos emprendedores, aquellos quienes dedicaron tiempo, recursos y arriesgaron sus emociones en mí. Algunos han perdido o no han redituado suficiente, algunos han recibido mi ayuda y la seguirán recibiendo, algunos han redituado bien y lo seguirán haciendo, todos seguiremos prosperando.
+Incluso he mantenido un tablero digital durante años, con la lista de personas que subieron gratis tutorials, cursos y recursos que me han ayudado en etapas de mi vida, gente que proveyó consejos francos, dinero y de todo. El tablero tiene tarjetas con notas personales, todos ellos merecen beneficios y un empujón también, mi sueño de éxito no está completo si la gente que ha estado viajando conmigo se deja atrás, hemos fallado juntos y aprendido juntos todos ustedes merecen ganar también.
+La gratitud me ayuda a recuperar mi enfoque, calibrar mi zen, y detectar aliados para la vida.
+
+Mi primer consejo como persona de negocios es:
+Encuentra personas valerosas quienes respetan y son recíprocas en gratitud y estarás rodeado por amigos que no te dejarán abajo, tu tiempo y apreciación hacia ellos nunca se desperdiciará, todas sus vidas serán mejores sin alguna duda, con ingenio y con honor, por supuesto.
+
+Salud por la gratitud y la valerosidad.
+Jorge Arturo
