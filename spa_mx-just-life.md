@@ -1,11 +1,12 @@
 #  Vida justa
 
 Estaba navegando redes sociales hoy y recibí una petición para responder la pregunta que alguna persona hacía pidiendo consejo sobre cómo adquirir lucidez.
+https://www.quora.com/How-can-I-reach-true-self-awareness-Where-I-know-almost-everything-about-my-behavior-and-why-I-act-this-way
 
 Tener un entrenador con quien interactuar y que te oriente en la dirección correcta ayuda tremendamente. Este es un tema relevante para la vida de negocios y emprendimiento, así que accedí a responder.
 Mi inicialmente-destinada-a-ser-corta respuesta se volvió una “revisión médica” de mi propio acercamiento, así que decidí compartirlo aquí con todos ustedes.
 
-- Cómo puedo volverme lúcido y entender mi propio comportamiento?
+- ¿Cómo puedo volverme lúcido y entender mi propio comportamiento?
 
 Tan solo vive. Vive con una mentalidad compasiva.
 
@@ -28,3 +29,5 @@ Esto requiere estar agradecido de estar vivo.
 Permanecer siempre en el asiento conductor.
 Esta es tu vida para compartir.
 Tu vida.
+
+#gratitud, #velerosidad, #relaciones, #compasión, #asesoría

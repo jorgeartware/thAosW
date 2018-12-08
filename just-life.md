@@ -1,6 +1,7 @@
 # Just life
 
 I was browsing social media today and received a request to answer some person’s question asking advice for how to become self-aware.
+https://www.quora.com/How-can-I-reach-true-self-awareness-Where-I-know-almost-everything-about-my-behavior-and-why-I-act-this-way
 
 Having a coach to interact with and point you in the right direction helps tremendously. This is a relevant topic for the life of business and entrepreneurship, so I agreed to answer.
 My initially-intended-to-be-short answer became an examination of my own approach, so I decided to share it here with all of you:
@@ -28,3 +29,5 @@ This requires being thankful to be alive.
 To always stay in the driver’s seat.
 This is your life to share.  
 Your life.  
+
+#gratitude, #bravery, #relationships, #compassion, #advice
